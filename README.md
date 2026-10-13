@@ -1,2 +1,0 @@
-34TLo4r0q6KHtYJmGqG3X9ewEjirtW8VXZs0Ir8pC2ZEVynmn95y1ILt# Randy-Grady-DDS
-rDEMCI7i
